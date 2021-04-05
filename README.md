@@ -1,7 +1,7 @@
 ### 👋
 
-![Khalid](https://user-images.githubusercontent.com/64505309/113608879-c5357900-9653-11eb-8202-cbf1682e19a9.jpg)
-![Khalid](https://user-images.githubusercontent.com/64505309/113608675-8b647280-9653-11eb-9c68-16113a63bf37.jpg)
+![Khalid](https://user-images.githubusercontent.com/64505309/113609060-fa41cb80-9653-11eb-8588-a4c6eb36c015.jpg)
+
 
 
 <!--
