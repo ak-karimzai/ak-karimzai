@@ -1,7 +1,6 @@
 ### 👋
 
 ![Khalid](https://user-images.githubusercontent.com/64505309/113609060-fa41cb80-9653-11eb-8588-a4c6eb36c015.jpg)
-![david_f](https://user-images.githubusercontent.com/64505309/116153000-55189100-a6ef-11eb-8df2-be55612aa551.jpg)
 https://twitter.com/ak_karimzai
 
 <!--
