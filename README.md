@@ -1,7 +1,6 @@
 ### 👋
 
 ![5ald1](https://user-images.githubusercontent.com/64505309/120433229-a6b5da80-c383-11eb-9014-b43467bb92e9.jpg)
-![Khalid](https://user-images.githubusercontent.com/64505309/113609060-fa41cb80-9653-11eb-8588-a4c6eb36c015.jpg)
 https://twitter.com/ak_karimzai
 
 <!--
